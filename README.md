@@ -15,4 +15,4 @@ on the side.
 Away from work: guitar, producing and DJing, photography, and helping the people around me grow.
 
 More at **[robertbarachini.github.io](https://robertbarachini.github.io)** ·
-[LinkedIn](https://www.linkedin.com/in/robert-barachini-11b8391ba/)
+[LinkedIn](https://www.linkedin.com/in/robert-barachini/)
